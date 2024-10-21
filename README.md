@@ -2,7 +2,7 @@
 - 👀 I’m interested in sever engineering
 - 🌱 I’m currently learning c++
 - 💞️ I’m looking to collaborate on nothing now
-- 📫 How to reach me emptiness1000s@gmail.com
+- 📫 How to reach me instagram:momev2021
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
